@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Wellnes
+- 👀 I’m interested in 1С Enterprise developing
